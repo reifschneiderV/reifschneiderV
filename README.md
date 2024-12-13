@@ -4,6 +4,7 @@ about me:
 My name is Valeria Reifschneider, but as that is quite hard to pronounce, Vee is more than sufficient. I prefer the use of she/ they pronouns.
 I am a student in my first year of a BSc(Hons) in Computer Science at the University of South Wales near Cardiff in Wales.
 Ihave prevoiusly finished highschool in Germany and a degree in Higher Education in Ireland for Organic Horticulture.
+coluntary work in greece, working on mult farms, international challege, work as a fundraiser for amnisty international
 
 How to reach me:
 email: reifschneiderValeria@outlook.com,  phone number: _______________, Area of activity: around Pontypridd near Cardiff
@@ -35,4 +36,4 @@ Playing the guitar, violin, (some piano)
 
 I am currently learning to draw and improving my project planning skills
 
-Fun fact: I enjoy experimenting with my fashion style a lot.
+Fun fact: I enjoy experimenting with my fashion style a lot. Over the past two years I have moved about seven times between four countries.
